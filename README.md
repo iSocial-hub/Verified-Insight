@@ -1,1 +1,0 @@
-# Market Insight Group
