@@ -1,1 +1,1 @@
-# Verified-Insight
+# Market Insight Group
